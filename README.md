@@ -1,6 +1,6 @@
 # Hi, I'm Marya Noor 👋
 
-**Project Manager | Finance Professional | Lean Six Sigma Black Belt**
+**Project Manager | Finance Professional | Hr and Payroll Manager| Lean Six Sigma Black Belt**
 📍 Berlin, Germany
 
 ## About Me:
@@ -25,7 +25,7 @@ I'm a results-driven Project Manager and Finance Professional with **8+ years of
 ## 🎓 Education & Certifications
 
 - 🎓 MSc in Project Management — Arden University, Berlin *(In Progress)*
-- 🎓 MBA in Finance — University of Sindh Jamshoro
+- 🎓 MBA (specialization In Finance)  — University of Sindh Jamshoro
 - ✅ Lean Six Sigma Black Belt, Green Belt & Yellow Belt — Alison (2026)
 - 📌 PMP Certification — In Progress (PMI, 2026)
 
