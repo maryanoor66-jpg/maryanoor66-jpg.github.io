@@ -31,5 +31,5 @@ I'm a results-driven Project Manager and Finance Professional with **8+ years of
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://linkedin.com/in/maryanoor-40093a182)
+- 💼 (https://linkedin.com/in/maryanoor-40093a182)
 - 📧 maryanoor66@gmail.com
